@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="0; url=http://shampions.vende.io/login.php" />
+
